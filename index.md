@@ -1,3 +1,3 @@
-# [Home](newera-001.github.io)
+# [Home]
 
 ## Xue Chang He
